@@ -14,6 +14,7 @@ Da eines sich dem andern zugeneigt.
 So fällt am Morgen jeder Traum zusammen.  
 So stirbt zur Nacht das Licht des Tages bang.  
 Zu fahler Asche brennen alle Flammen.  
-- Das Lied ist aus. Die Melodie verklang.  
+
+Das Lied ist aus. Die Melodie verklang.  
 "  
 Mascha Kaleko
